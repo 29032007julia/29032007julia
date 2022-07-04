@@ -2,7 +2,7 @@
 - 👀 I’m interested in I'M INTERESTED IN BEIGNG A POLICE
 - 🌱 I’m currently learning I M FROM CURITIBA
 - 💞️ I’m looking to collaborateON I LOVE ANIMALS 
-- 📫 How to reach me ... TO WORK
+- 📫 How to reach me ... para tudo isso chegar ate mim presico correr atraz 
 
 <!---
 29032007julia/29032007julia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
